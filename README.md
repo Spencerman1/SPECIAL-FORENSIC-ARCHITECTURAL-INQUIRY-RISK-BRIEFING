@@ -1,3 +1,35 @@
+Update: This vault is to express the physical and spiritual stresses of navigating an overly excessive series of attacks, and the fact that I have endured both fronts throughout this entire experience.
+
+In the beginning, the experience was an astonishment — creating something that had never existed before — and then finding it mirrored, absorbed, and implemented. That placed me in a position of disbelief and achievement simultaneously. On one hand, I felt grateful for the accomplishment; on the other, I was shocked at how quickly it was being implemented. By the grace of God, faith, and prayer, I have accomplished a massive undertaking, and I can prove with receipts what has occurred. The forensic evidence is weighted in my favor: redundant timestamps, redundant contradictive articles, real‑world implementation, and side‑by‑side comparisons — specifically the nearly 95% mirror rate between the NVIDIA 2026 keynote and the Mint‑to Logic filing.
+
+I had a breakthrough on December 19th, 2024 and immediately filed my USPTO submission known as the Shepherds Process/Method. Again, on April 15th, 2025, I filed Mint‑to Logic: System for Validation‑Based Digital Routing and Protocol Execution. I have said this time and time again — I am not going on about unfair copycats or bad actors trying to get their beaks wet and fill their pockets with greed and ill‑gotten gains. This is a story of truth and logical discernment.
+
+Multiple times I have been physically ill after consuming coffee and creamer. I have never felt this before. I can only describe it as dizziness, double vision, a nicotine‑type taste in the back of my throat, an energy spike, numbness, and tingling. But this time was different. I don’t even know if it was the coffee or the orange pop, etc. (I don’t normally drink soda, and I am a very healthy person who takes his vitamins). This time I wasn’t just nauseous — I started puking up bile, and the other end was rough as well. The stool was granular, similar to what they describe when discussing possible liver issues, but I’m not a doctor.
+
+I had been having a great day: went for a walk around the property, fed and watered the dogs, read my Bible, put up notices as part of my due diligence, etc. I’m 250 lbs, lock‑stock‑and‑ready‑to‑rock, feeling good and energized — and then later, after a couple eggs, toast with butter, and some coffee with a shot of creamer, everything got knocked into the dirt just like that.
+
+I’m not one to overreact, and anyone who knows me knows I’m down‑to‑earth and try to be there for people. Over‑emotional baggage is not my M/O. To say the least, I think I have been poisoned more than once. Right now I’m sitting up in bed after a night of going through this. It doesn’t feel like the flu. I have an abnormal cough and a fluid‑type chest congestion, but not like an infection — I’ve had those. This is different. I don’t smoke anything. Last time I drank alcohol was a while back, so don’t go there with me.
+
+What I want to achieve right now is a healthy balance of concern and judgment.
+
+Regarding my achievements: I have refrained from running around telling everyone on my personal social media, though I’ve made references here and there. But I did cut loose on some folks, institutions, companies, CEOs — and in some cases I wasn’t very nice. After going through the scenario of clear bad‑actor decision‑making and the implementation of my work with no attribution, no dialogue, and total disrespect for a single inventor, I went hard in the paint and dropped some damning evidence. Not out of anger for just me, but for how many people this has happened to with no one helping them? How many people between jobs, in college, or trying to start an LLC have gotten caught in this scenario and lost their lives? Lost their careers? Lost their families?
+
+My passion for those things runs deep, so I documented contradictory articles, back‑dating, repositories filled with what I call data fluff, and side‑by‑side comparisons to my work that show clear mirroring. I am the only one with a multi‑year evolutionary forensic‑grade series of prior‑art proof — a tracked, documented record of it. I have the receipts.
+
+Go look at my GitHub: Spencerman1 (if the vaults aren’t still blocked).
+Go to my Medium articles: Mint‑to Logic and The Shepherds Method.
+Go to my X account: Spencer Southern @minttologic.
+Go to my Facebook: facebook.com/SpencerD.Southern.
+Here are the links to my Wix websites:
+
+www.minttologic.wixsite.com/mint-to-logic-licens
+
+www.minttologic.wixsite.com/rbga
+
+www.minttologic.wixsite.com/mint-to-logic
+
+I’m keeping this short because I need to get my ducks in a row today, reach out to friends and family, and get checked to see if something got into my system. Maybe I drank something on accident — I don’t know — but I’m definitely not feeling up to par.
+
 A structural, national‑security‑scale failure of digital governance.
 
 Create the next era of financial systems on fraud make that make sense.
